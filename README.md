@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MaWe3012
+- 👀 I’m interested in Gaming, Movies. I'm into NERD Stuff as well.
+- 🌱 I’m currently learning coding. Starting with some Swift Coding. So please be patient with me ;)
